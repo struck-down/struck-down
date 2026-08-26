@@ -7,6 +7,6 @@
 **<p align="center">** 
 **______________________** <br/>
 
-> [atabook](https://electrostatic.atabook.org/) [pronouns.cc](https://pronouns.cc/@viscarte) <br/>
+ [atabook](https://electrostatic.atabook.org/) [pronouns.cc](https://pronouns.cc/@viscarte) <br/>
 
-> <sup>also : DAMSEL-IN-DISTRESS & frankly-iero </sup>
+ <sup>also : DAMSEL-IN-DISTRESS & frankly-iero </sup>
