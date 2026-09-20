@@ -1,6 +1,6 @@
 **<p align="center">**
 $\color{ffffff}{\textsf{ash, steph, damsel}}$ <br/>
-<sup>$\color{ffffff}{\textsf{18}}$ <br/> $\color{ffffff}{\textsf{masc terms only}}$ 
+$\color{ffffff}{\textsf{18}}$ <br/> $\color{ffffff}{\textsf{masc terms only}}$ 
 **<p align="center">** **______________________**
   **<p align="center">** 
 ![campbell](https://files.catbox.moe/ljaj7e.png)
